@@ -63,3 +63,7 @@ Whatsapp
 
 YouTube
 ▶️ https://www.youtube.com/TermuxBook
+
+Instagram
+📊 https://www.instagram.com/amitvishwakarm_a/
+
